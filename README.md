@@ -1,0 +1,1 @@
+# mgamer-privacy-policy
